@@ -1,3 +1,3 @@
-Coding
-Walking 
-Socialising
+-Coding
+-Walking 
+-Socialising
