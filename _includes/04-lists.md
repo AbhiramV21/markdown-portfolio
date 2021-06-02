@@ -1,0 +1,3 @@
+- Coding
+- Walking 
+- Socialising
